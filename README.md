@@ -1,0 +1,2 @@
+# domingo-rico
+liveCAM*
